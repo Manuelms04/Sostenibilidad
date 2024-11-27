@@ -1,5 +1,6 @@
 # SOSTENIBILIDAD
 
+! [sost.jpeg](/img/sost.jpeg)
  
 ## Índice
 1.1. Introducción
